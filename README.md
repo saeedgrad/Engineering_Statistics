@@ -9,7 +9,7 @@ Hello everyone,
 
 Please use the following link to upload your project (first version) before 31 (Tir).
 
-لطفا از لینک زیر برای ارسال نسخه اولیه پروژه تان (قبل از ۳۱ ام خرداد ماه ) استفاده نمایید.
+لطفا از لینک زیر برای ارسال نسخه اولیه پروژه تان (قبل از ۳۱ ام تیر ماه ) استفاده نمایید.
 
 https://forms.gle/Qpzg9zKuEqFxzw266
 
